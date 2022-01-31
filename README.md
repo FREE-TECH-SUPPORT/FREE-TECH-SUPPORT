@@ -1,4 +1,4 @@
-### Hi there 👋
+### REPORT ISSUES WITH THE FREE TECH SUPPORT APP HERE:
 
 <!--
 **FREE-TECH-SUPPORT/FREE-TECH-SUPPORT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
